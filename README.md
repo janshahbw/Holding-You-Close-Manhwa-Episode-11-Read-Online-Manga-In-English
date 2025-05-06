@@ -1,5 +1,11 @@
 # Holding You Close Manhwa Episode 11 Read Online Manga In English
-<a href="https://video2leaks.com/" rel="nofollow">Holding You Close Manhwa Episode 11</a>
+<h3> 📚<a href="https://video2leaks.com/" rel="nofollow"> Click Here To Read Holding You Close Manhwa Episode 11</a>
+
+--- 
+
+<img src="https://cdn.anime-planet.com/manga/primary/holding-you-captive-1.webp?t=1701182295" 
+     alt="Holding You Captive Cover Image" 
+     style="max-width:100%; height:auto;">
 
 
 The Korean manhwa **"Holding You Close"**, also known as *Holding You Captive* or *Make It Impossible For You to Escape*, continues to grip fans with its intense romance, emotional conflict, and dark themes. **Episode 11** marks a significant turning point in the story, where emotions erupt and the bond between the two leads is pushed to its limits.
