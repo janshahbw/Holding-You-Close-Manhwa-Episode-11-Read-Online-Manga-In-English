@@ -1,4 +1,4 @@
-# Holding You Close Manhwa Episode 8 and 9 Read Online Manga In English
+# Holding You Close Manhwa Chapter 8 and 9 Read Online Manga In English
 <h3> 📚<a href="https://video2leaks.com/" rel="nofollow"> Click Here To Read Holding You Close Manhwa Episode 8</a>
 
 --- 
